@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Discord-Chan
-- 👀 I’m interested in anime and videogames ;-; but also in projekts!
+- 👀 I’m interested in anime and videogames ;-; but also in projects!
 - 🌱 I’m currently learning to fix my life and sleep schedule!
 - 💞️ I’m looking to collaborate on nothing currently!
 - 📫 How to reach me on instragram @discord_kun 
